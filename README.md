@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **raha.bracu@gmail.com**
 
-- 📑 Find my CV from : [https://tinyurl.com/Raha-CV](https://tinyurl.com/Raha-CV)
+- 📑 Find my CV from : [Raha-CV](https://tinyurl.com/Al-Amin-Raha-CV)
 
 - ⚡ Fun fact **I read 349 books in 2022!**
 
