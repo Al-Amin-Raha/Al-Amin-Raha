@@ -6,10 +6,6 @@
 - 👩🏻‍💻 I’m currently learning **Django**
 
 - 📫 How to reach me **raha.bracu@gmail.com**
-<! --:
-- 📑 Find my CV from : [Raha-CV](https://tinyurl.com/Raha-resume1)
----->:
-
 
 - ⚡ Fun fact **I read 349 books in 2022!**
 
